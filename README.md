@@ -1,4 +1,4 @@
-# *"The urge to destroy is also a creative urge."* — Bakunin
+# *"The urge to destroy is also a creative urge."* — Mikhail Bakunin
 
 ## Who I Am
 

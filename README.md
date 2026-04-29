@@ -1,8 +1,4 @@
-# 👤 README.md
-
-> *"The urge to destroy is also a creative urge."* — Bakunin
-
----
+# *"The urge to destroy is also a creative urge."* — Bakunin
 
 ## Who I Am
 
